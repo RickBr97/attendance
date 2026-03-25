@@ -1,1 +1,0 @@
-# PresencaCM2026
